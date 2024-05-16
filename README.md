@@ -1,0 +1,1 @@
+# brandlogo-img-dataset-cocacola-asus-pran-adidas-mojo
